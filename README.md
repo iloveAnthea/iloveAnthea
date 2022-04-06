@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iloveAnthea
+- 👋 Hi, I’m @ Is
 - 👀 I’m interested in ... program
 - 🌱 I’m currently learning ... prepare to study
 - 💞️ I’m looking to collaborate on ... partner 
