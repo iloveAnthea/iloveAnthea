@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ Is
 - 👀 I’m interested in ... program
 - 🌱 I’m currently learning ... prepare to study
-- 💞️ I’m looking to collaborate on ... partner 
+- 💞️ I’m looking ... partner 
 - 📫 How to reach me ... letanthanh24202001@gmail.com
 
 <!---
